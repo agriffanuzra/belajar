@@ -1,0 +1,2 @@
+# belajar
+cntoh aja dulu
